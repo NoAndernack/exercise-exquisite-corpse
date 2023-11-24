@@ -9,4 +9,3 @@ Arrivé à Boston **Balar** a directement repris le large en direction de *Cuba*
 arrivé aux côtes de cuba, le bateau de **balar** se fait frapper par une tempête très violente, balar tenta de sauver son bateau par tous les moyens mais ce fut impossible, la force du vent et la force des vagues contre sa coque étaient bien trop puissantes, il abandonna tout espoir et laissa son bateau couler avec son capitaine.
 
 **Balar** ne se remit jamais de cette aventure, il alla de port en port écument les bars et sombrant dans l’alcool, jusqu’a devenir une épave tout comme le navire laissé au font de l’Océan, il fini sa course dans un délire psychotique  noyé  dans son chagrin.
-
